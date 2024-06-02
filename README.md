@@ -4,6 +4,10 @@
 
 ---
 
+In the wild, often spotted cycling or bouldering. And on the couch.
+
+---
+
 *My story? So glad you asked.*
 
 *As the fine business of designing buildings waved a gentle bye-bye due to the abismal state of the industry, I took it as an opportunity to pivot (as serious people in serious positions like to put it), to learn a new set of skills. This is just that.*
